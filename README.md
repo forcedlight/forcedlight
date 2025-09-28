@@ -1,16 +1,19 @@
+And after all, there's something perfectly clear
 
-' you think ill ever find someone ? '
+In this life, you must endure
 
-' ... ' 
+Stick with me, you'll find your purpose is near
+
+And it's far
+
+It won't matter anymore
+
 
 
 
 https://github.com/user-attachments/assets/e5c2b0db-8f89-4e8f-b56a-2517c8efaad6
 
 
-
-
-https://github.com/user-attachments/assets/70f5f63d-167a-42d5-8028-c29e40566e2b
 
 
 
