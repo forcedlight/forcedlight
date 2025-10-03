@@ -2,7 +2,8 @@
 
 
 
-![⭑ 𝙩𝙞𝙡𝙡 › 𝙧𝙤𝙪𝙣𝙙 7 _ᐟ](https://github.com/user-attachments/assets/5763e8f5-c468-4e33-8c57-9419102a7c37)
+<img width="640" height="311" alt="image" src="https://github.com/user-attachments/assets/67b30fee-9372-4f8e-934a-5383b238bd2b" />
+
 
 
 
