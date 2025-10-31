@@ -1,6 +1,7 @@
 
 
 
-![download (2)](https://github.com/user-attachments/assets/5b9b9ec0-2042-4beb-96fa-269ce377be27)
+<img width="1161" height="589" alt="image" src="https://github.com/user-attachments/assets/d9e60454-25c2-4d3a-b879-7a3ffa240e11" />
 
-w2i , they them only strictly . kai 
+tanner u so cool
+
