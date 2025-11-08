@@ -1,7 +1,6 @@
 
 
 
-<img width="1161" height="589" alt="image" src="https://github.com/user-attachments/assets/d9e60454-25c2-4d3a-b879-7a3ffa240e11" />
+<img width="736" height="615" alt="image" src="https://github.com/user-attachments/assets/923f935a-ae63-4888-81e1-48439881e326" />
 
-tanner u so cool
 
