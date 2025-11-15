@@ -1,4 +1,5 @@
-<img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/aa324e76-bbd8-4ed7-bc10-1a646ed1be7f" />
+<img width="492" height="306" alt="image" src="https://github.com/user-attachments/assets/9879d713-1136-4c17-91a6-1f6202bc013e" />
+
 
 
 ✧˖  ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ no pronouns
