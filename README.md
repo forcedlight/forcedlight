@@ -1,8 +1,9 @@
-<img width="720" height="515" alt="image" src="https://github.com/user-attachments/assets/fe97e1a0-bcac-426f-ba51-e8645da2deae" />
+<img width="736" height="457" alt="image" src="https://github.com/user-attachments/assets/45fb8316-4ea4-4cd2-adde-bfd1d6f7ba0d" />
 
 
 
 
-✧˖  ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ no pronouns
+
+✧˖  ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ they / it 
 
 ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ kai or snow , kai preffered
