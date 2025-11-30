@@ -1,4 +1,4 @@
-<img width="845" height="475" alt="image" src="https://github.com/user-attachments/assets/c636ade4-8c5e-47b8-9712-5ce2bc9ea203" />
+<img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/3d809459-7435-4ea7-abd3-d620a94bff33" />
 
 
 
@@ -8,3 +8,9 @@
 ✧˖  ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ they / it 
 
 ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ kai or snow , kai preffered
+
+
+
+
+
+IFUCJINGKNOWRENDERISFORSAKENSBUTIKNOWTHEARGPLEASEWAAH
