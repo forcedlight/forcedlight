@@ -1,3 +1,5 @@
+im money bfdie's no 0.5 / 1 fan btw.ok. no i didnt changed my opinion on money since bfdie 1
+
 ![four-angry](https://github.com/user-attachments/assets/6f7f3247-44e4-44da-8102-2d1eda0fff85)
 
 
