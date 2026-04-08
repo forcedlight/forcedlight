@@ -14,7 +14,7 @@ $\color{blue}{\textsf{i hate the way you look like me, i hate the way you THINK 
 ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ kai or snow , kai preffered
 
 
-<img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/038bbf93-bfec-4e47-9d42-09036e545cdb" />
+
 
 
 
